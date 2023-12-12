@@ -1,1 +1,0 @@
-# bkarippayi.github.io
